@@ -1,1 +1,3 @@
-# House-for-sale-Altea
+# House For Sale Altea
+[House for sale Altea](https://www.spaniaproperty.com/), your professional and personal Real Estate Agent in Altea welcomes you to our website. If you are looking for a new home, in one of the best climates in the world, where you feel at home, don't miss our offer of flats, townhouses, country houses, villas and luxury villas for sale in Altea and the northern Costa Blanca. We will be happy to search the local property market for you to find your dream property. Would you like to buy a property? Ask us, tell us your preferences and we will give you a personalised answer.
+
